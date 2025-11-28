@@ -1,6 +1,6 @@
 # Privacy Policy for Game4You
 
-**Last Updated:** 2024
+**Last Updated:** 2025-11-28
 
 ## 1. Introduction
 
